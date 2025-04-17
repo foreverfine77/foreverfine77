@@ -6,6 +6,7 @@
 
 ### I'm foreverfine77
 
+From XAUAT,major in Electronic Information
 
 my email is 2047860026@qq.com
 
